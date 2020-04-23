@@ -1,0 +1,2 @@
+# durgunsular
+bizi takip edin
